@@ -1,2 +1,2 @@
 # Collins
-# I'm obsessed ... Ewa is so fire 
+# I'm obsessed ... Ewa is so not fire 
